@@ -1,1 +1,0 @@
-# johndanielpolicarpio.github.io
